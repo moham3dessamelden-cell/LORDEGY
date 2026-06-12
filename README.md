@@ -1,0 +1,2 @@
+# LORDEGY
+LORD
